@@ -1,1 +1,4 @@
 # AboutMe
+
+I'm Steve Stark. I'm originally from the NYC area, but I've lived in FL for a long time. I have a BA in English from UC Berkeley. I've been a real estate agent for 6 years, and I am a founding partner of the Aspire Group at Engel & Völkers Melbourne Beachside in Brevard County, FL. Prior to my real estate career, I was an English as a Second Language (ESL) instructor and Academic Coordinator in NYC, Philly, Miami and Melbourne, FL. I feel I've lived many other lifetimes within this one life, as well, and my entry into the realm of FinTech represents the start of yet another. 
+My career goal is to either work for Cardano/IOHK or to program on the Cardano blockchain from the outside. I feel the timing couldn't be more perfect for this, since the opportunities are about to explode.
