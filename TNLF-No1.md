@@ -1,7 +1,9 @@
-There once was a walrus named Jersey
+There once was Walrus named Jersey
 
-Who turned everything topsy-tursy.
+Who could turn everything topsy-tursy.
 
 With a grunt and a hiss
+
+And a shart and a piss
 
 
